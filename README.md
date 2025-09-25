@@ -25,3 +25,4 @@ i try to update this every now and then!
 - don't randomly friend me if we've never talked/interacted, i will decline it and probably be awkward around you for a good while after that until i forget about it.
 - friends can ask for our discord user! we may have it connected to our ponytown account but we'll barely have that set as our social, so please just whisper us for it!!
 - friends can still interact if i have "dni", "dniuf", or "dniuid" in my pony name! close friends can interact no matter what. iwc/iwec goes for everyone though.
+- putting this down here because i guess it can be here. please don't jokingly flirt with me unless you're a *close* friend, i don't like it it makes me uncomfortable ok
